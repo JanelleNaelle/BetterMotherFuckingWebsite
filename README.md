@@ -1,1 +1,1 @@
-https://janellenaelle.github.io/BetterMotherFuckingWebsite/
+https://janellenaelle.github.io/
